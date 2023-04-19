@@ -12,3 +12,5 @@
 ```
 2. Spoilers
 
+---
+Note: This Approach Requires Strength, Resilience, and Coherency Over Time of Individualized Conceptualization. Note for Everyone
